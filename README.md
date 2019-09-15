@@ -4,7 +4,7 @@ I'm an outgoing person, so everyone is welcome to know me and we can make friend
 ## My basic information  
 - Phone number:**13717583766**.
 - Email address:**1900011805@pku.edu.cn**
-- Habits:NBA,Cantonese songs, delicious food and so on.(Waiting for you to explore...)
+- Habits:NBA, Cantonese songs, delicious food and so on.(Waiting for you to explore...)
 ## My Photogragh
 ![](https://github.com/YuWang-zxhy/homepage/blob/master/WechatIMG1.jpeg)
 ## My Favorite Sentence
